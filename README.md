@@ -34,6 +34,7 @@ Here are a few things I've picked up along my learning journey.
 
 
  or give some ♥ on [mail](mailto:adnanazmee@gmail.com) .
+  or give some ♥ on [mail](mailto:adnanazmee@gmail.com) .
 
 
 
